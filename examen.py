@@ -1,0 +1,1 @@
+ Inisizliser l'exament
